@@ -6,5 +6,7 @@ This text gives a brief description of your GitHub profile card and what it does
 
 
 
-Uploading 2023-09-30 21-52-31.mp4…
+
+
+https://github.com/sedatcalis/git-profil-card/assets/140658531/0a433bca-263e-441f-8095-4c8e4a81eebc
 
